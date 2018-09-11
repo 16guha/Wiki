@@ -1,3 +1,4 @@
 # Wiki
-Some of my school work
-Denna sida är för en skolprojekt, mer info finner ni i Wiki-fliken ovan
+Hej!
+
+Jag heter Gustav Hassbring och är 18 år gammal. Jag bor för nuvarande i Spånga samt Jakobsberg och går sista året på gymnasiet. Om jag inte sitter hemma framför datorn så är jag ute och tränar handboll eller löper.
